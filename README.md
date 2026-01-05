@@ -1,2 +1,2 @@
 # career
-For job posting
+For Digital marketing and sales manager
